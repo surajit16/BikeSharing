@@ -4,5 +4,5 @@
 
 
 ## Contact
-Created by [@surajit16] - feel free to contact me!
+Created by @surajit16 - feel free to contact me!
 
